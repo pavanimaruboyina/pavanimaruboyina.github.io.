@@ -1,2 +1,0 @@
-# pavanimaruboyina.github.io.
-website
